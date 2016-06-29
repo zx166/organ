@@ -14,3 +14,6 @@
 如意加密的使用指南已经制成录像，敬请下载观看：http://bit.ly/292LBBK
 
 注：以上下载地址都是免翻地址，可直接下载。
+
+####最新報導
+<a href="https://dctrz7l9ug6uw.cloudfront.net/QinWei.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911714/7ee3ee42-2dc0-11e6-823d-b76159948cd5.gif" width="634" height="123"></a>
