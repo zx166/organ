@@ -1,24 +1,20 @@
-活摘证据爆料邮箱：evidence.providing@gmail.com
-
-朋友：
-
-感谢您有勇气站出来曝光恶行！我们相信，大部分活摘器官的参与者，是因为受到中共的长期洗脑、及中共犯罪集团的整体胁迫，参与了这场反人类罪行。因此，在这场反人类罪行大白于天下、江泽民集团即将遭到清算的前夕，我们真诚希望您披露所知真相，在这历史的重要关头，站在正义的一边。
-
-为了保证您安全爆料证据，我们提供PGP加密技术。（PGP加密技术的原理是一个没有解决的数学难题，因此不能被破译，密码达4000位，非常安全。）
-请下载我们的PGP公共钥匙：https://bit.ly/gpgkey1
-
-您使用这个公共钥匙将内容加密之后发给我们，将绝对保证这个内容不能被其他人看到。
-
-建议您使用绿色PGP加密软件——如意加密（下载地址：https://bit.ly/rysoftw ）
-
-如意加密的使用指南已经制成录像，敬请下载观看：https://bit.ly/rycourse1
-
-注：以上下载地址都是免翻地址，可直接下载。
-
-####▶ 特别关注
-<p>追查国际最新录像 <a id="tiezheng" href="https://d36twsqkt5gsfh.cloudfront.net/tiezheng.mp4"><b>铁证如山</b></a>
-
-<a href="https://dctrz7l9ug6uw.cloudfront.net/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16462795/5fb5684e-3e22-11e6-9320-81ce022838a3.gif" width="634" height="123"></a>
-
-<a href="https://d20w0cl474g28w.cloudfront.net/MH/tekan/Organ.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279498/e4809804-fb70-11e5-91dc-d62390c4a3dc.jpg"></a>
-<a href="https://d20w0cl474g28w.cloudfront.net/MH/tekan/huozhaiZE.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg"></a>
+<a href="https://github.com/zx166/organ/issues/1" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16901893/196c31ba-4c1e-11e6-9d85-7eb51b01f1bf.jpg" width="872"></a>
+## ■ 曝料邮箱  [evidence.providing@gmail.com](https://github.com/zx166/organ/issues/1)
+##■ 世界聚焦活摘器官罪恶
+<a href="https://github.com/zx166/organ/issues/4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892747/06e64aa4-4aec-11e6-9111-dc4632a1cde7.jpg" width="872"></a>
+<a href="https://github.com/zx166/organ/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892749/18caa6e8-4aec-11e6-8b58-d82e38bd6b53.jpg" width="872" vspace="7"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/Media.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17278990/46e53248-5738-11e6-964a-6bb11d10a7d4.jpg" width="288"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279614/90f5e018-5746-11e6-8ad1-9b5d0eefdf46.jpg" width="288"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279332/3639ab34-573f-11e6-9baf-ab596dcbd721.jpg" width="288"></a>
+##■ 死刑犯撑不起的蘑菇云
+<a href="https://github.com/zx166/organ/issues/3"><img src="https://cloud.githubusercontent.com/assets/13546896/16892758/5f2390dc-4aec-11e6-9950-36b767f1ccb3.jpg" width="872" vspace=5></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17280726/8f161486-5762-11e6-9792-65939f0b2d34.jpg" width="434"></a>
+<a href="https://d20w0cl474g28w.cloudfront.net/organ/TieZheng.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279985/f3275266-5751-11e6-8836-445857ac30b6.jpg" width="434"></a>
+<a href="https://github.com/zx166/organ/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892800/bae1fa70-4aed-11e6-9122-2b7a34e71579.jpg" width="872" vspace=5></a>
+<a href="https://github.com/zx166/organ/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width="872"></a>
+##■ 了解真相
+<a href="https://github.com/zx168/168/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="434"></a>
+<a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="434"></a>
+##■ 更多资讯请访问
+<a href="https://dlak576fb9gh1.cloudfront.net/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17280938/6b43fda4-5765-11e6-8d3c-a96ccba5e4a4.png" width="434"></a>
+<a href="https://delrjhzmvvfwq.cloudfront.net/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17280939/6b466986-5765-11e6-9c21-1a7fa9830c76.png" width="434"></a>
