@@ -14,7 +14,7 @@
 <a href="https://github.com/zx166/organ/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892800/bae1fa70-4aed-11e6-9122-2b7a34e71579.jpg" width=872 vspace=5></a>
 <a href="https://github.com/zx166/organ/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width=872></a>
 ##■ 了解真相
-<a href="https://github.com/zx168/168/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="434" style="max-width:100%"></a>
+<a href="https://github.com/zx166/166/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="434" style="max-width:100%"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="434" style="max-width:100%"></a>
 ##■ 更多资讯请访问
 <a href="https://dlak576fb9gh1.cloudfront.net/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17280938/6b43fda4-5765-11e6-8d3c-a96ccba5e4a4.png" width="434" ></a>
