@@ -2,7 +2,7 @@
 ## ■ 曝料邮箱  [evidence.providing@gmail.com](https://github.com/zx166/organ/issues/1)
 ##■ 最新消息
 <a href="https://github.com/zx166/organ/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17829562/ba80bb8a-6680-11e6-9bb2-240f8dbf3b82.png" width="434" align=center></a>
-<a href="https://github.com/zx166/organ/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17829561/ba7d882a-6680-11e6-87a1-97a88177f3f7.png" width="434" align=center></a>
+<a href="https://github.com/zx166/organ/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17830001/f0b5ebfa-668d-11e6-8b11-bb6de681e27a.png" width="434" align=center></a>
 ##■ 世界聚焦活摘器官罪恶
 <a href="https://d20w0cl474g28w.cloudfront.net/organ/Media.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17278990/46e53248-5738-11e6-964a-6bb11d10a7d4.jpg" width="288" align=top-center style="max-width:100%"></a>
 <a href="https://d20w0cl474g28w.cloudfront.net/organ/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279614/90f5e018-5746-11e6-8ad1-9b5d0eefdf46.jpg" width="288" align=top-center style="max-width:100%"></a>
