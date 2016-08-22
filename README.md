@@ -12,7 +12,7 @@
 <a href="https://github.com/zx166/organ/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892749/18caa6e8-4aec-11e6-8b58-d82e38bd6b53.jpg" width=872 vspace="7"></a>
 ##■ 死刑犯撑不起的蘑菇云
 <a href="https://github.com/zx166/organ/issues/3"><img src="https://cloud.githubusercontent.com/assets/13546896/16892758/5f2390dc-4aec-11e6-9950-36b767f1ccb3.jpg" width=872 vspace=5></a>
-<a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17280726/8f161486-5762-11e6-9792-65939f0b2d34.jpg" width="434" align=center></a>
+<a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/17874840/3669139c-689c-11e6-864b-ecaa5b2dc07b.png" width="434" align=center></a>
 <a href="https://d20w0cl474g28w.cloudfront.net/organ/TieZheng.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17279985/f3275266-5751-11e6-8836-445857ac30b6.jpg" width="434" align=center></a>
 <a href="https://github.com/zx166/organ/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16892800/bae1fa70-4aed-11e6-9122-2b7a34e71579.jpg" width=872 vspace=5></a>
 <a href="https://github.com/zx166/organ/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896495/c6bb70e0-4b62-11e6-9442-ecbd3f70646a.jpg" width=872></a>
