@@ -20,5 +20,5 @@
 <a href="https://github.com/zx166/166/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896198/b62c5c88-4b5a-11e6-844a-46ac6989950b.jpg" width="434" style="max-width:100%"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="434" style="max-width:100%"></a>
 ##■ 更多资讯请访问
-<a href="https://dlak576fb9gh1.cloudfront.net/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18462798/741ac9b6-7953-11e6-8c0b-c05a5505ac03.jpg" width="434" ></a>
-<a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18462797/6ea58fe8-7953-11e6-9e86-4c79e31213de.jpg" width="434"></a>
+<a href="https://dlak576fb9gh1.cloudfront.net/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18462924/559413fc-7954-11e6-9073-de308c73dfff.jpg" width="434" ></a>
+<a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18462941/6da946b0-7954-11e6-9baf-810ae4fb2e12.jpg" width="434"></a>
