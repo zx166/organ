@@ -21,3 +21,4 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/16896199/b62d665a-4b5a-11e6-9f5f-944ba168f5f4.jpg" width="434" style="max-width:100%"></a>
 ##■ 更多资讯请访问
 <a href="https://dlak576fb9gh1.cloudfront.net/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/17280938/6b43fda4-5765-11e6-8d3c-a96ccba5e4a4.png" width="434" ></a>
+<a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="434"></a>
